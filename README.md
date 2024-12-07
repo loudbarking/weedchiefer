@@ -1,10 +1,12 @@
-![bug](https://cdn.discordapp.com/attachments/1257501153327845427/1299092580205727754/A1FC829F-C812-4ACE-84BC-732C8246D4BD.png?ex=671bf1bf&is=671aa03f&hm=7eaf92d91d304d58b335cdc58f264c5e15c6c4c6183b6b7e0aea2c010a56bca2&)
+> <sup> this repository is still a *work in progress...* </sup>
 
-> [!WARNING]
-> i smoke way too much weed on a day to day basis help me
+![db](https://64.media.tumblr.com/dcf0c6afa4798fa07a833017e3620f8e/0f76993d06cecbb4-5e/s400x600/46d91d761c108aaaa9f79a9463f9c6d14a771154.gifv)
 
-╭──╯ . . . . .  ⋆.˚✮ ​🇴​​🇫​​🇼​​🇬​​🇰​​🇹​​🇦​ ᐟ✮˚.⋆
+## INTERESTS 。,　☆　*　
+⊹ ⋆｡˚ <ins>VIDEO GAMES</ins> : <sup> team fortress 2, half life, portal, left 4 dead, garry's mod, counter-strike, ponytown, minecraft, roblox, fortnite, sonic games, ultrakill, postal games, doom, etc. </sup>
 
-> <sub> work in progress tbh </sub>
 
-### ( ≖‿  ≖ )
+
+
+
+╭──╯ . . . . .  ⋆.˚✮ ​🇴​​🇫​​🇼​​🇬​​🇰​​🇹​​🇦​ ᐟ✮˚.⋆ ( ≖‿  ≖ )
