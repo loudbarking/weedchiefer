@@ -14,5 +14,4 @@
 
 彡 i draw and play video games a lot! i luv listening to sooo much music... whatever im doing i have music on! i'm slowly beginning to make music myself ^_^ i write (lyrics, stories, code), rarely i'll cosplay irl, but i love doing it in games (like pt and rblx). i edit videos, and make edits as well. ive dabbled in a bit of rblx game devving, and might start selling rblx clothes again idk! umm i smoke weed a lot, if that counts as a hobby. i like watching video essays. my fav channel to watch is pyrocynical i love that bald fuck. will post youtube vids of my own soon... ummm i skate during summertime. and i like driving. humble chipotle employee. that's about it
 
-![hehe](https://64.media.tumblr.com/b80118d7f0ed181ec79497941d066cf2/72499008efe7eac0-18/s500x750/7e2348e11f1c47164ee3e6cc4436a640cfd6a3a7.gifv)
 ![2](https://64.media.tumblr.com/0ce14290c493e1422c88adacbd21e1b6/72499008efe7eac0-ca/s2048x3072/1ae049c69e0623d1fd1013aff5aca1caf0bc95db.pnj)
