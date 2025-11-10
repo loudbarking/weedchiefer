@@ -7,17 +7,17 @@
 
 > ### INTERESTS 。,　☆　*　
 ## ⊹ ⋆｡˚ <ins>VIDEO GAMES</ins> : 
-***team fortress 2***, *sonic*, ***devil may cry***, *schedule 1*, half-life, *many other valve games*, ***cruelty squad***, *postal games*, ultrakill, ***marvel v. capcom***, webfishing, ***club penguin***, *ponytown*, etc.
+*team fortress 2, counter-strike, half-life, portal, l4d, garry's mod, minecraft, roblox, fortnite, webfishing, ponytown, ultrakill, cruelty squad, schedule 1, deltarune, undertale, the postal series, guilty gear, umvc, devil may cry, pizza tower, the genesis project, the sonic series, and plenty of others*
 
 ## ˚✧ <ins>SERIES</ins> :
-***soul eater***, *dragon ball*, hlvrai, **bugbo**, the boys, ***metalocalypse***, sonic prime, **sonic underground**, *devilman crybaby*, **jjba**, ***devil may cry anime***, loiter squad, **mlp**, *so many youtubers* ***(pyro, mark, jack, cory)***, ummm a buncha movies i'm too lazy to list, etc.
+*soul eater, dragon ball, hlvrai, bugbo, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, loiter squad, mlp, so many youtubers (pyrocynical, mark, jack, cory, jerma, etc.), ummm a buncha movies i'm too lazy to list, horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
 
 ## ˏˋ°•*⁀➷ <ins>MUSIC</ins> :
-tyler the creator, A$AP rocky, juice WRLD, smokedope2016, bladee, semetary, edward skeletrix, brennan jones, doechii, MF DOOM, acid souljah, travis scott, migos, lil uzi vert, JPEGMAFIA, charli xcx, lady gaga, chappell roan, ayesha erotica, cobra starship, my chemical romance, linkin park, judas priest, iron maiden, twisted sister, ratt, system of a down, candlemass, video game ost, etc.
+*tyler the creator, A$AP rocky, juice WRLD, smokedope2016, joeyy, bladee, semetary, edward skeletrix, brennan jones, MF DOOM, lil B, acid souljah, christ dillinger, lil uzi vert, JPEGMAFIA, lady gaga, ayesha erotica, cobra starship, my chemical romance, linkin park, judas priest, twisted sister, system of a down, candlemass, video game ost especially toby fox, vyletpony, femtanyl, ken ashcorp, lemon demon, etc.*
 
 
 ## HOBBIES 。,　੭　*
 
-彡 i draw and play video games a lot! mainly tf2, sched1, club penguin, crk, and THE FUCKING BARNYARD VIDEO GAME 🧃 i luv listening to sooo much music... whatever im doing i usually have music on! i'm slowly beginning to make music myself ^_^ i write (lyrics, stories, fanfics, code, etc.), rarely i'll cosplay irl, i love doing it in games (like pt and rblx). i edit videos, and make edits as well. umm i smoke weed a lot, if that counts as a hobby. i like watching video essays. my fav channel to watch is pyrocynical i love that bald fuck. will post youtube vids of my own soon... ummm i skate during summertime. a humble pirate >:D yarr harr... aaaaaaaand that's about it
+彡 i draw and play video games a lot! mainly tf2, ponytown, and roblox 🧃 i luv listening to sooo much music... whatever im doing i usually have music on! i write (stories, fanfics, code, etc.), rarely i'll cosplay irl, i love doing it in games (like pt and rblx). i edit videos, and make edits as well. umm i smoke weed a lot, if that counts as a hobby. i like watching video essays. my fav channel to watch is pyrocynical i love that bald fuck. will post youtube vids of my own soon... ummm i skate during summertime. a humble pirate >:D yarr harr... aaaaaaaand that's about it
 
-![tenna4](https://64.media.tumblr.com/45fe1903d202b6e4cf931b944c7e9d71/ccbef67770b3130e-17/s400x600/de599a820baa8bf9003dcff70f910085fa766af6.gifv)
+![tailsdoll](https://media1.tenor.com/m/t2aBmWWl_uoAAAAC/tails-doll-tails.gif)
