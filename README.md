@@ -13,7 +13,7 @@
 **tadc**, *soul eater, dragon ball, hlvrai, bugbo, homestuck, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, loiter squad, mlp, so many youtubers (pyrocynical, mark, jack, cory, jerma, etc.), ummm a buncha movies i'm too lazy to list, horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
 
 ## ˏˋ°•*⁀➷ <ins>MUSIC</ins> :
-*tyler the creator, A$AP rocky, juice WRLD, smokedope2016, joeyy, bladee, semetary, edward skeletrix, brennan jones, MF DOOM, lil B, acid souljah, christ dillinger, lil uzi vert, JPEGMAFIA, lady gaga, ayesha erotica, cobra starship, my chemical romance, linkin park, judas priest, twisted sister, system of a down, candlemass, video game ost especially toby fox, vyletpony, femtanyl, ken ashcorp, lemon demon, etc.*
+*ill redo this another time omg sob emoji*
 
 
 ## HOBBIES 。,　੭　*
