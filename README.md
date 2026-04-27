@@ -10,7 +10,7 @@
 *team fortress 2, counter-strike, half-life, portal, l4d, garry's mod, minecraft, roblox, fortnite, webfishing, ponytown, ultrakill, cruelty squad, schedule 1, deltarune, undertale, the postal series, guilty gear, umvc, devil may cry, pizza tower, the genesis project, the sonic series, and plenty of others*
 
 ## ˚✧ <ins>SERIES</ins> :
-**tadc**, *soul eater, dragon ball, hlvrai, bugbo, homestuck, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, loiter squad, mlp, so many youtubers (pyrocynical, mark, jack, cory, jerma, etc.), ummm a buncha movies i'm too lazy to list, horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
+**tadc**, *soul eater, dragon ball, hlvrai, bugbo, homestuck, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, loiter squad, mlp, so many youtubers (mark, jack, cory, jerma, tf2tubers, etc.), ummm a buncha movies i'm too lazy to list, horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
 
 ## ˏˋ°•*⁀➷ <ins>MUSIC</ins> :
 *ill redo this another time omg sob emoji*
