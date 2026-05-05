@@ -7,10 +7,10 @@
 
 > ### INTERESTS 。,　☆　*　
 ## ⊹ ⋆｡˚ <ins>VIDEO GAMES</ins> : 
-*team fortress 2, counter-strike, half-life, portal, l4d, garry's mod, minecraft, roblox, fortnite, webfishing, ponytown, ultrakill, cruelty squad, schedule 1, deltarune, undertale, the postal series, guilty gear, umvc, devil may cry, pizza tower, the genesis project, the sonic series, and plenty of others*
+***team fortress 2,*** *counter-strike, half-life, portal, l4d, garry's mod, minecraft, roblox* *(i play a lot of* ***dandy's world,*** *meleeniacs, regretevator, a bit of sewh and die of death, and some etc silly ones)* *marathon, destiny 1, webfishing, ponytown (obvs, lol), ultrakill, cruelty squad, schedule 1, deltarune, undertale, the postal series, guilty gear, umvc, devil may cry, pizza tower, the genesis project, the sonic series, and plenty of others*
 
 ## ˚✧ <ins>SERIES</ins> :
-**tadc**, *soul eater, dragon ball, hlvrai, bugbo, homestuck, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, loiter squad, mlp, so many youtubers (mark, jack, cory, jerma, tf2tubers, etc.), ummm a buncha movies i'm too lazy to list, horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
+***the amazing digital circus***, *soul eater, dragon ball, hlvrai, bugbo, homestuck, the boys, metalocalypse, sonic prime, sonic underground, devilman crybaby, jjba, devil may cry anime, mlp, so many youtubers (mark, jack, cory, jerma, tf2tubers, etc.), ummm a buncha movies... i'll just list some comfort ones... barnyard (2006), speed racer (2008) [PLEASE TALK TO ME ABOUT THESE FIRST TWO MOVIES PLEASE!!!], pulp fiction, kill bill series, the original halloween trilogy + the last two modern halloweens, the OG scream tetralogy, black christmas (1974), the boy (2016), other horror/slasher movies as well as other horror related stuff, especially disturbing youtube videos, ARGs, minecraft ARGs, slenderverse series, etc.*
 
 ## ˏˋ°•*⁀➷ <ins>MUSIC</ins> :
 *ill redo this another time omg sob emoji*
